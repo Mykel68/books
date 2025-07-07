@@ -12,3 +12,4 @@ June -2025
 July -2025
 5. 2/7/2025 - Make your Bed - Admiral William H. McRaven
 6. 2/7/2025 - The Greatest Saleman in the World - OG Mandino
+7. 6/7/2025 - Time is Money - Aiden Nolan
