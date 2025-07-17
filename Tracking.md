@@ -14,3 +14,4 @@ July -2025
 6. 2/7/2025 - The Greatest Saleman in the World - OG Mandino
 7. 6/7/2025 - Time is Money - Aiden Nolan
 8. 8/7/2025 - Secrets of Closing the Sale - Zig Ziglar
+9. 16/7/2025 - The 38 Letters of Rockefeller to his son - John Rockefeller Jnr
