@@ -15,3 +15,4 @@ July -2025
 7. 6/7/2025 - Time is Money - Aiden Nolan
 8. 8/7/2025 - Secrets of Closing the Sale - Zig Ziglar
 9. 16/7/2025 - The 38 Letters of Rockefeller to his son - John Rockefeller Jnr
+10. 27/7/2025 - $100M Leads - Alex Hormozi
