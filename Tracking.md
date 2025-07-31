@@ -17,3 +17,4 @@ July -2025
 9. 16/7/2025 - The 38 Letters of Rockefeller to his son - John Rockefeller Jnr
 10. 27/7/2025 - $100M Leads - Alex Hormozi
 11. 27/7/2025 - The Pilgrim's Progress - John Bunyan
+12. 31/7/2025 - Ego is the enemy - Ryan Holiday
