@@ -18,3 +18,6 @@ July -2025
 10. 27/7/2025 - $100M Leads - Alex Hormozi
 11. 27/7/2025 - The Pilgrim's Progress - John Bunyan
 12. 31/7/2025 - Ego is the enemy - Ryan Holiday
+
+August - 2025
+13. 07/08/2025 - Die with Zero - Bill Perkins
