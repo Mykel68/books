@@ -21,3 +21,4 @@ July -2025
 
 August - 2025
 13. 07/08/2025 - Die with Zero - Bill Perkins
+14. 10/08/2025 - Deep Work - Cal Newport
