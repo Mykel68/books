@@ -23,3 +23,4 @@ August - 2025
 13. 07/08/2025 - Die with Zero - Bill Perkins
 14. 10/08/2025 - Deep Work - Cal Newport
 15. 20/08/2025 - Mindset (Updated) - Dr. Carol S. Dweck
+16. 07/08/2025 - The Four Hour Work Week - Timothy Ferriss
