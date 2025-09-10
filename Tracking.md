@@ -25,3 +25,6 @@ August - 2025
 15. 20/08/2025 - Mindset (Updated) - Dr. Carol S. Dweck
 16. 25/08/2025 - The Four Hour Work Week - Timothy Ferriss
 17. 27/08/2025 - The Subtle Art of not Giving a fuck - Mark Manson 
+
+September - 2025
+18. 08/09/2025 - The Richest Man in Babylon - George S Clason
