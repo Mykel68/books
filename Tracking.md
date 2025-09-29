@@ -30,3 +30,4 @@ September - 2025
 18. 08/09/2025 - The Richest Man in Babylon - George S Clason
 19. 23/09/2025 - How to Lead When Not In Charge - Clay Scroggins
 20. 24/09/2025 - The Science of Getting Rich - Wallace D. Wattles
+21. 29/09/2025 - Eat the Frog - Brain Tracy
