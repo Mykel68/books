@@ -31,3 +31,6 @@ September - 2025
 19. 23/09/2025 - How to Lead When Not In Charge - Clay Scroggins
 20. 24/09/2025 - The Science of Getting Rich - Wallace D. Wattles
 21. 29/09/2025 - Eat the Frog - Brain Tracy
+
+November - 2025 
+22. 25/10/2025 - The Power of the Subconscious Mind - Joseph Murphy
