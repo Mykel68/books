@@ -37,3 +37,7 @@ October - 2025
 
 November - 2025
 23. 27/11/2025 - Can't Hurt Me - David Goggins
+
+
+January - 2026
+1. 04/01/2025 - Secret of a Millionaire Mind -  T. Harv Eker
