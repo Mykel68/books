@@ -41,3 +41,4 @@ November - 2025
 
 January - 2026
 1. 04/01/2025 - Secret of a Millionaire Mind -  T. Harv Eker
+2. 27/01/2025 - Atomic Habits - James Clear
